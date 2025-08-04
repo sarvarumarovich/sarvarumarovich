@@ -1,4 +1,4 @@
-### Hi there, I'm Xayitov Bunyod 👋
+### Hi there, I'm Dino 👋
 
 
 **My Research Interest**:
